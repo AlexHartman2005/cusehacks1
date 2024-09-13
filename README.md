@@ -1,4 +1,4 @@
 
 Hello my name is Alex
-\nZane why are you looking over my shoulder this is scary :(
-\nNot very nice
+Zane why are you looking over my shoulder this is scary :(
+Not very nice
